@@ -6,6 +6,7 @@
 -     Contact:   +91 9012146810
 -     Email:     vaivhavchauhan2162003@gmail.com
 -     Insta I'd: hhachi._vn
+-     Linkedin:  https://www.linkedin.com/in/vaibhav-chauhan-21ab241bb/
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm a good Basketball player and i love to dribble with my project and shoot them into basket to get the required output in one go.
 
