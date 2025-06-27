@@ -5,7 +5,7 @@
 - 📫 You can reach me or Contact me through the Following details
 -     Contact:   +91 9012146810
 -     Email:     vaivhavchauhan2162003@gmail.com
--     Insta I'd: hhachi._vn
+-     Insta I'd: avis_lockedin
 -     Linkedin:  https://www.linkedin.com/in/vaibhav-chauhan-21ab241bb/
 -     buymeacoffee: coff.ee/vaivhavcha9
 - 😄 Pronouns: He/Him
